@@ -1,1 +1,1 @@
-https://yuriimatsiv.github.io/text/index.html
+https://yuriimatsiv.github.io/text/
